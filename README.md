@@ -1,6 +1,6 @@
 - 📲 Hi, I’m @chillyxs1q
-- 👀 Ig: @chillyx
-- 🤑 nvm ...
+- 👀 Ig: @chillyssj
+- 🤑 bye ...
 
 <!---
 chillyxs1q/chillyxs1q is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
