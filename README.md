@@ -1,5 +1,5 @@
-- 📲 Hi, I’m @chillyxs1q
-- 👀 Ig: @chillyssj
+- 📲 Hi, I’m @¿?
+- 👀 Ig: @¿?
 - 🤑 bye ...
 
 <!---
